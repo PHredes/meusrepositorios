@@ -1,1 +1,0 @@
-Olá Blue Tean!
